@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Shnehapadmanaban
+- 👀 I’m interested in Data Analytics
+- 🌱 I’m currently learning  more about Data Analytics
+- 📫 How to reach me through shneha3402@gmail.com
